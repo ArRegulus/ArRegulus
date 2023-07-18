@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey :)<br>I'm an engineering student majoring in AI with and interest in Infosec<br>feel free to add me on Twitter or Linkedin 😎<br>Based in France "Knowledge is power, France is Bacon"
+Hey :)<br>I'm an engineering student majoring in AI with and interest in Infosec<br>Based in France "Knowledge is power, France is Bacon"
 
 
 ## 🌐 Socials:
